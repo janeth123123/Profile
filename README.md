@@ -1,2 +1,3 @@
 # Profile
-<img width="488" height="531" alt="image" src="https://github.com/user-attachments/assets/38ec1436-f55f-4fa9-8040-c706126123c3" />
+<img width="680" height="630" alt="image" src="https://github.com/user-attachments/assets/95c45800-f2ef-4991-9026-321df5d6a2bf" />
+
