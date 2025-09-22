@@ -1,3 +1,7 @@
 # Profile
-<img width="680" height="630" alt="image" src="https://github.com/user-attachments/assets/95c45800-f2ef-4991-9026-321df5d6a2bf" />
+<img width="675" height="626" alt="image" src="https://github.com/user-attachments/assets/2cc90ad1-d179-46e0-bdff-765a4c328cbd" />
+<img width="677" height="619" alt="image" src="https://github.com/user-attachments/assets/0544ec04-4649-4af8-bb49-8fe59d0f8522" />
+
+
+
 
